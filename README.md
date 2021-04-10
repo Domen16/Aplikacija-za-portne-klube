@@ -1,1 +1,1 @@
-# Aplikacija-za-portne-klube
+# Aplikacija-za-sportne-klube
